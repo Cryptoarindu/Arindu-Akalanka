@@ -1,1 +1,1 @@
-# Arindu-Akalanka
+I am a highly skilled Draftsman with expertise in 3D modeling, construction design, and steel structure fabrication. With a strong background in Computer Aided Design (CAD) / Solidworks and a focus on delivering exceptional results, I have successfully contributed to various projects in the Australian real estate market and Telecommunications Industry.# Arindu-Akalanka
